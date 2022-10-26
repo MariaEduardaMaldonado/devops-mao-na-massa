@@ -1,1 +1,0 @@
-# devops-mao-na-massa
